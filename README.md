@@ -1,0 +1,1 @@
+Bunu herkes kullansın
